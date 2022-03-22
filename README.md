@@ -1,1 +1,1 @@
-👋 Olá, sou @aliciaa123, atualmente trabalho no PicPay como Talent Acquisition. Você me encontra através do Linkedin, fique à vontade para criar uma conexão :) https://www.linkedin.com/in/al%C3%ADcia-sagrilo-970169181/
+👋 Olá, sou @aliciaa123, psicóloga e atualmente trabalho no PicPay como Talent Acquisition. Você me encontra através do Linkedin, fique à vontade para criar uma conexão :) https://www.linkedin.com/in/al%C3%ADcia-sagrilo-970169181/
